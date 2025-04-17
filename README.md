@@ -1,2 +1,0 @@
-# V-squad
-SCRIM PUBG ANJURAN V-SQUAD
